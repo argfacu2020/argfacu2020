@@ -2,7 +2,7 @@
 - I am a minecraft builder and 
 discord configurator
 - and when I grow up I'm going to become a great video game programmer
-- actor, roleplay, mc
+- actor, roleplay minecraft
 - best pvp 1.8
 - my dc : https://discord.gg/gatitos2
 <!---
